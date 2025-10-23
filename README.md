@@ -2,20 +2,25 @@
 ---
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hello, hi. What do people tend to put on this odd junk again?⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀I fear I have too much to too devoid off of names. You may call me by my user, pfp, cosplay or associated character.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hello, hi. What do people tend to put on this odd junk again?⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀I fear I have too much to too devoid off of names. You may call me by my user, pfp, cosplay or associated character.⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀It's the internet & it seems people aren't too deserving. Welcome to whatever side of the Wired I float about in, I guess.
 </p>
 
 ---
 
-I use no pronouns, mirrored neutral-masculine, & he/him. Ok with non-themed neos, iffy on nounselves + it/its, and never she/her or anything overly-feminine.
+I use no pronouns, mirrored neutral-masculine, & he/him. Ok with non-themed neos, iffy on nounselves + it/its, and never she/her or anything overly-feminine.⠀⠀neumasc + (some) nonhuman terms.
+⠀⠀⠀⠀⠀⠀⠀gender ambigious. aromantic. somehow unlabeled with too many labels.
 
 ---
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀southeast asian, semi-verbal, identityflux,
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀alterhuman, objectum, autosexual, aplatonic
 ⠀⠀⠀⠀⠀struck by a huge ego & crippling paranoia. very mentally unstable.
+
+---
+
+⠀⠀⠀
 <!--
 **UnopenedEmail/UnopenedEmail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
